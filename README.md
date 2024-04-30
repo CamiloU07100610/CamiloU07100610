@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hola mi nombre es camilo y soy un estudiante  😄👋
 
 <!--
 **CamiloU07100610/CamiloU07100610** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
